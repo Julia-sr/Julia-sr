@@ -1,13 +1,26 @@
-### OIII como vai? 👋
-- 🌱 Atualmente estou estudando: info CTISM, maior e melhor
-- 😄 Pronomes: ela/dela
-- ✌ Sou do rock 
-<!--
-**Julia-sr/Julia-sr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Sobre mim💫
+_Algumas informações sobre mim:_
 
-Here are some ideas to get you started:
+- Eu tenho 14 anos✌
+- Estou no CTISM, info maior e melhor 
+- Meu signo é escorpião🦂
+- Meu MBTI é INTP😎
+- Meu chalé é o 13 de hades
+- Minha frase favorita é:
 
-- 🌱 Atualmente estou estudando: info CTISM, maior e melhor
-- 😄 P✌✌ronouns: ela/dela
+>  Que minha solidão me sirva de companhia.
+Que eu tenha a coragem de me enfrentar.
+Que eu saiba ficar com o nada
+e mesmo assim me sentir
+como se estivesse plena de tudo.
 
--->
+Clarice Lispector
+ 
+ # Meus Hobbies.✔
+ 
+ - Ler💖
+ - Fazer doces🥞
+ - Assistir séries✨
+ - Ouvir música🎶
+ 
+ 
