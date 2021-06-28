@@ -1,6 +1,6 @@
 # Sobre mim💫
 _Algumas informações sobre mim:_
-
+foi escrita enquanto eu estava na nova branch
 - Eu tenho 14 anos✌
 - Estou no CTISM, info maior e melhor 
 - Meu signo é escorpião🦂
