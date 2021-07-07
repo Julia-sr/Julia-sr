@@ -13,7 +13,6 @@ me sentir como se estivesse plena de tudo...
 
 Clarice Lispector
 
--Meus Hobbies.
 -Ler
 -Fazer doces
 -Assistir séries
