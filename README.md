@@ -2,7 +2,7 @@
 
 ## Algumas informações sobre mim:
 
-- Eu tenho 14 anos✌
+- Eu tenho 15 anos✌
 - Estou no CTISM, info maior e melhor
 - Meu MBTI é INTP😎
 - Meu chalé é o 13 de hades
