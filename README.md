@@ -2,10 +2,9 @@
 
 ## Algumas informações sobre mim:
 
-- Eu tenho 17 anos✌
-- Estou no CTISM, info maior e melhor
-- Meu MBTI é INTP😎
-- Meu chalé é o 13 de hades
+- Eu tenho 18 anos✌
+- Estudei no CTISM, info maior e melhor
+- Fazendo graduação de Engenharia de Telecomunicações 
 - Minha frase favorita é:
 >Que minha solidão me sirva de companhia. 
 Que eu tenha a coragem de me enfrentar.
